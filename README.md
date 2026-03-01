@@ -2,7 +2,7 @@
 **AI Solutions Architect | AI Developer**
 
 Turning ideas into intelligent, end-to-end applications—fast.
-Visit [![Website](https://keerthan.tinkernlabs.com)
+Visit my [web portal](https://keerthan.tinkernlabs.com)
 
 ---
 
